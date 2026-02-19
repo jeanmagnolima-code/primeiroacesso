@@ -4,6 +4,7 @@
 - Eu estou estudando informática no [Cebrac](https://www.cebrac.com.br/)
 - Vou começar a trabalhar de Jovem Aprendiz na empresa [Condor](https://www.condor.com.br/)
 - Vocẽ pode entrar em contato comigo pelo meu Instagram @jeancesarl
+  
 
 
 
